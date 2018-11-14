@@ -26,4 +26,3 @@ El creador de **Marvel** Comics _falleció_ el día *12 de noviembre de 2018*
 :octocat:
 :tada:
 :secret:
-/play bezos
