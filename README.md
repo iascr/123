@@ -26,6 +26,8 @@ El creador de **Marvel** Comics _falleció_ el día *12 de noviembre de 2018*
 :octocat:
 :tada:
 :secret:
-:secret:
-:secret:
-:secret:
+
+# EDGAR SOLANO CAMBIOS
+![DARKORBIT](https://darkorbit-22.bpsecure.com/do_img/global/externalHome/assets/screenshots/screen_4.jpg?__cv=f14a9db15f7b19f266322c4aa190bf00)
+
+[Este es darkorbit](https://www.darkorbit.com/) :alien:
