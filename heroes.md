@@ -8,3 +8,5 @@
 * Linterna Verde
 * Robin
 * Chapulin Colorado
+* Spiderman
+* Chico Percebe
